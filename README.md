@@ -1,4 +1,4 @@
 # welcome to ios community
 
 
-Repo under construction.
+Community looking for leads! 
